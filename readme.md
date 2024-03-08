@@ -1,0 +1,1 @@
+Are you tired of traditional writing workshops that feel boring and uninspired? At WriteNow, we're shaking things up with our innovative approach to online writing education. Our courses are designed to be engaging, interactive, and fun!
